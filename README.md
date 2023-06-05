@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Enzoorivero
-- 👀 I’m interested in develop
+- 👀 I’m interested in learn
 - 🌱 I’m currently learning Web Development
 - 📫 How to reach me 
 -     gmail- agus28146@gmail.com
